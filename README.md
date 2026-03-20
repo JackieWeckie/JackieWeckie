@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a lot of projects and even start-ups. Only our knowledge will limit us...
 - 📫 How to reach me? You can text me on Telegram @NicetasJava or my work mail nikitamor999f@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i'm an autistic 17 yo kid lmao
+- ⚡ Fun fact: i'm an autistic 18 yo kid lmao
 
 <!---
 JackieWeckie/JackieWeckie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
